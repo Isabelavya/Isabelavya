@@ -1,6 +1,6 @@
 🌟 Hello, Lovely Wanderer! 🌟
 
-I’m @Isabela, a dream-weaver and code whisperer. 🌙✨
+I’m @Frances, a dream-weaver and code whisperer. 🌙✨
 
 - Passion: I dance with pixels, coaxing them into interactive projects that twinkle like constellations.
 - Learning Journey: Currently sipping from the HTML, CSS, and JavaScript potion cauldron. 🧪🌿
